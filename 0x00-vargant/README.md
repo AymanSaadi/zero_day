@@ -1,1 +1,1 @@
-___strong______strong___
+__Strong__
