@@ -1,0 +1,1 @@
+___strong______strong___
